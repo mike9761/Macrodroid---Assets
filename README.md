@@ -1,1 +1,1 @@
-GIFs suitable for Macrodroid Macro 
+GIF, Photos and Sounds suitable for Macrodroid Macro 
